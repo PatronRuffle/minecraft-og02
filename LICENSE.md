@@ -1,4 +1,4 @@
-#  
+#  Experience minecraft like never before with smart minecraft Script, the #1 Script. Includes custom skins and undetectable for unbeatable performance.
 
 
 
